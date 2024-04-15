@@ -2,7 +2,7 @@
 - 👀 I’m interested in projects and coding
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me tanmayagarwalcs23@bmsce.ac.in
+- 📫 How to reach me tanmayagr2021@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: im an absolute beginner
 
